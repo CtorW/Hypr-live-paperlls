@@ -2,7 +2,7 @@
 
 # My Awesome Resources
 
-Here's a curated list of resources I find useful!
+Here's a collections of Gif Wallpapers Thanks to imgur🤍
 
 - [Anime Wallpapers](https://imgur.com/gallery/anime-gif-paperlls-rSkyml1) - A collection of high-quality anime wallpapers.
 - [Pixel Wallpapers](https://imgur.com/gallery/pixel-gif-wallpapers-linux-BqS3TCI) - Retro and nostalgic pixel art wallpapers.
