@@ -6,6 +6,7 @@ Here's a collections of Gif Wallpapers Thanks to imgur🤍
 
 - [Anime Wallpapers](https://imgur.com/gallery/anime-gif-paperlls-rSkyml1) - A collection of high-quality anime wallpapers.
 - [Pixel Wallpapers](https://imgur.com/gallery/pixel-gif-wallpapers-linux-BqS3TCI) - Retro and nostalgic pixel art wallpapers.
+- [GIF-HyPaperlls Collections 1](https://imgur.com/gallery/gif-hypaperlls-collections-1-0FHp9H5) - Gif collections part 1 (anime).
 
 
 ## How to use this list
