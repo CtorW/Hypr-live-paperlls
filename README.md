@@ -1,5 +1,25 @@
 ![Hyprland](https://github.com/user-attachments/assets/fd6e65bb-bcb0-41cd-9aec-071304f51eda)
 
-[![Hyprland](https://github.com/user-attachments/assets/2dca46e8-7c6f-4a88-837d-d414b5544ba8)](https://imgur.com/a/rSkyml1)
+# My Awesome Resources
+
+Here's a curated list of resources I find useful!
+
+- [Anime Wallpapers](https://imgur.com/gallery/anime-gif-paperlls-rSkyml1) - A collection of high-quality anime wallpapers.
+- [Pixel Wallpapers](#) - Retro and nostalgic pixel art wallpapers.
 
 
+## How to use this list
+
+Simply click on the links to access the resources. Feel free to contribute by suggesting more resources!
+
+## Contributing
+
+If you have a resource you think should be included, please:
+
+1.  Fork this repository.
+2.  Add your resource to the list in the README.md file, following the existing format.
+3.  Submit a pull request.
+
+## License
+
+This project is licensed under the [MIT License](LICENSE) - see the LICENSE file for details.
