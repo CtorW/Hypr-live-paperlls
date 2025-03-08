@@ -5,7 +5,7 @@
 Here's a curated list of resources I find useful!
 
 - [Anime Wallpapers](https://imgur.com/gallery/anime-gif-paperlls-rSkyml1) - A collection of high-quality anime wallpapers.
-- [Pixel Wallpapers](#) - Retro and nostalgic pixel art wallpapers.
+- [Pixel Wallpapers](https://imgur.com/gallery/pixel-gif-wallpapers-linux-BqS3TCI) - Retro and nostalgic pixel art wallpapers.
 
 
 ## How to use this list
