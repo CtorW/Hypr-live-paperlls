@@ -9,6 +9,7 @@ Here's a collections of Gif Wallpapers Thanks to imgur🤍
 - [GIF-HyPaperlls Collections 1](https://imgur.com/gallery/gif-hypaperlls-collections-1-0FHp9H5) - Gif collections part 1 (anime).
 - [GIF-HyPaperlls Collection 2](https://imgur.com/gallery/gif-hypaperlls-collections-2-U378TcX) - Gif collections part 2.
 - [GIF-HyPaperlls Collection 3](https://imgur.com/gallery/gif-hypaperlls-collection-3-1u6uLCX) - Gif collections part 3.
+- [GIF-HyPaperlls Collection 4](https://imgur.com/gallery/gif-hypaperlls-collection-4-ZjldgA1) - Gif collections part 4.
   
 ## How to use this list
 
