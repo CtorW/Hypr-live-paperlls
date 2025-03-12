@@ -11,7 +11,16 @@ Here's a collections of Gif Wallpapers Thanks to imgur🤍
 - [GIF-HyPaperlls Collection 3](https://imgur.com/gallery/gif-hypaperlls-collection-3-1u6uLCX) - Gif collections part 3.
 - [GIF-HyPaperlls Collection 4](https://imgur.com/gallery/gif-hypaperlls-collection-4-ZjldgA1) - Gif collections part 4.
 - [GIF-HyPaperlls Collection 5](https://imgur.com/gallery/gif-hypaperlls-collection-5-resimprove-gS5sxjm) - Gif collections part 5 (resolution improvement - 20%).
-  
+- [GIF-HyPaperlls Collection 6](https://imgur.com/gallery/gif-hypaperlls-collection-6-resimprove-890-KG6JONo) - Gif collections part 6 (resolution improvement - 30%).
+- [GIF-HyPaperlls Collection 7](https://imgur.com/gallery/gif-hypaperlls-collection-7-resimprove-890-MWmYsiw) - Gif collections part 7 (resolution improvement - 30%).
+- [GIF-HyPaperlls Collection 8](https://imgur.com/gallery/gif-hypaperlls-collection-8-resimprove-890-s5c0mGT) - Gif collections part 8 (resolution improvement - 30%).
+- [GIF-HyPaperlls Collection 9](https://imgur.com/gallery/gif-hypaperlls-collection-9-resimprove-890-TtAw7rH) - Gif collections part 9 (resolution improvement - 30%).
+- [GIF-HyPaperlls Collection 10](https://imgur.com/gallery/gif-hypaperlls-collection-10-resimprove-890-94ItgY3) - Gif collections part 9 (resolution improvement - 10%).
+
+## Collections Profile 
+
+[IMGUR COLLECTION](https://imgur.com/user/ctorwww/posts) - CtorW
+
 ## How to use this list
 
 Simply click on the links to access the resources. Feel free to contribute by suggesting more resources!
